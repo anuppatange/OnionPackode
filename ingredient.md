@@ -1,12 +1,12 @@
-2 sliced onion
-1 chooped ginger
-2 chopped green chilly
-few curry leaves
-chopped coriander
-turmeric powder
-red chilly powder
-hing
-besan(gram flour) 1 cup
-rice flour
-salt
+2 sliced onion,
+1 chooped ginger,
+2 chopped green chilly,
+few curry leaves,
+chopped coriander,
+turmeric powder,
+red chilly powder,
+hing,
+besan(gram flour) 1 cup,
+rice flour,
+salt,
 oil
